@@ -1,3 +1,3 @@
-## what did we learn 
+## What did we learn 
 -
 -
